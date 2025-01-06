@@ -2,6 +2,15 @@
 
 Beba Santander una creadora de contenido ecuatoriana está causando revuelo en redes sociales, principalmente en Telegram, donde han sido filtrados enlaces que direccionan contenido íntimo relacionado al video de la cocina y otros con el plomero, ¿Qué se sabe sobre los clips virales de la influencer?
 
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
 En los últimos días el nombre de Beba Santander acaparo la atención de los internautas, después que se filtrara un video comprometedor, en el que usuarios sugieren que se trata de un clip intimo con un plomero, lo que ha concentrado el interés de sus seguidores, principalmente en Telegram y Twitter (ahora X).
 
 Santander ha logrado consolidar un público notable y fiel en sus redes sociales, por sus videos entretenidos y su complicidad con los mismo, además de ello sus bailes sensuales y provocativos han agregado un plus para que más audiencia se sume sus perfiles públicos.
